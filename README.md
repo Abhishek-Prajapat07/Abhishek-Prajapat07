@@ -7,8 +7,7 @@
 
 - 📫 How to reach me **abipra2003@gmail.com**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/1bS1nZwBXBkXoU5giJzq56msJCChldmkdqhZDdlllTrc/edit?tab=t.0#heading=h.z4ri87ifqilk](https://docs.google.com/document/d/1bS1nZwBXBkXoU5giJzq56msJCChldmkdqhZDdlllTrc/edit?tab=t.0#heading=h.z4ri87ifqilk)
-
+- 📄 Know about my experiences https://drive.google.com/drive/u/1/my-drive
 - ⚡ Fun fact **I am Funny**
 
 <h3 align="left">Connect with me:</h3>
